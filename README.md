@@ -3,6 +3,5 @@ only my FRIENDS are allowed to call me english names. if you arent a friend, the
 
 https://r-udie.straw.page/ 
 
-https://r-udie.atabook.org/
 
 this read me wont be decorated nice because i honestly don't know how.. when i learn i'll do so much! 
