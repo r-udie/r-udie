@@ -5,4 +5,8 @@ https://r-udie.straw.page/
 
 https://rudie.atabook.org/
 
-this read me wont be decorated nice because i honestly don't know how.. when i learn i'll do so much! 
+https://pronouns.cc/@r_udie
+
+icon by @shellcest / pinterest
+
+this readme wont be decorated nice like.. ever! i dont really want to learn how! its just here so my profile doesnt look empty and stupid !
