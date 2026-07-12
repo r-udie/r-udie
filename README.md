@@ -9,4 +9,4 @@ https://pronouns.cc/@r_udie
 
 icon by @shellcest / pinterest
 
-this readme wont be decorated nice like.. ever! i dont really want to learn how! its just here so my profile doesnt look empty and stupid !
+DOUBLES WILL BE BLOCKED NO MATTER WHO THEY ARE OR OUR RELATIONSHIP! I WILL BLOCK YOU ON SIGHT IF YOU ARE A RUDIE KIN/FICTIONKIN/YUMESHIPPER! alters you are okay just iwec. thank you!! OTHER THAN THAT RUDIE DOUBLES WILL BE BLOCKED!!!!!!!!!!!!!!!!!!!!!!!
