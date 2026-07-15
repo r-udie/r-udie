@@ -23,7 +23,7 @@ $${\color{#efccc3}links}$$ [ata](https://rudie.atabook.org/) [straw](https://r-u
 
 $${\color{#efccc3}I \ am \ a \ rudie \ from \ Dandys \ World \ irl. \ doubles \ will \ be \ blocked \ on \ sight, \ no \ matter \ our \ realtionship.}$$
 $${\color{#efccc3}\ This \ does \ NOT \ apply \ to \ system \ alters \ as \ they \ cannot \ control \ their \ source. \ rudie \ alters \ IWEC.}$$
-$${\color{#efccc3}\ I \ DO \ NOT \ SUPPORT \ QWEL! \ \ QWEL \ SUPPORTERS \ HEAVY DNI}$$
+$${\color{#efccc3}\ I \ DO \ NOT \ SUPPORT \ QWEL! \ \ QWEL \ SUPPORTERS \ HEAVY \ DNI}$$
 
 </div>
 
