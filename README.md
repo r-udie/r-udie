@@ -1,12 +1,35 @@
-hi! my name is 坦纳!!!! read my strawpage then sign my atabook!
-only my FRIENDS are allowed to call me english names. if you arent a friend, then call me 坦纳! if you cannot get the chinese symbols, just call me rudie. I won't be mad if you have trouble copying and pasting!
 
-https://r-udie.straw.page/ 
+$${\color{#efccc3}Hello! \space my \space name \space is \space 坦纳!!!!}$$ $${\color{#efccc3}read \space my \space strawpage \space and \space sign \space my \space atabook}$$
 
-https://rudie.atabook.org/
+<div align="center">
+  
+![deer](https://files.catbox.moe/h0sfeg.png)
 
-https://pronouns.cc/@r_udie
+</div>
 
-icon by @shellcest / pinterest
+<div align="center">
 
-DOUBLES WILL BE BLOCKED NO MATTER WHO THEY ARE OR OUR RELATIONSHIP! I WILL BLOCK YOU ON SIGHT IF YOU ARE A RUDIE KIN/FICTIONKIN/YUMESHIPPER! alters you are okay just iwec. thank you!! OTHER THAN THAT RUDIE DOUBLES WILL BE BLOCKED!!!!!!!!!!!!!!!!!!!!!!!
+$${\color{#efccc3}icon \space by}$$ [@shellcest on pinterest](https://www.pinterest.com/shellcest)
+
+</div>
+
+<div align="center">
+  
+$${\color{#efccc3}links}$$ [ata](https://rudie.atabook.org/) [straw](https://r-udie.straw.page) [prns.cc](https://pronouns.cc/@r_udie)
+
+</div>
+
+<div align="center">
+
+$${\color{#efccc3}I \ am \ a \ rudie \ from \ Dandys \ World \ irl. \ doubles \ will \ be \ blocked \ on \ sight, \ no \ matter \ our \ realtionship.}$$
+$${\color{#efccc3}\ This \ does \ NOT \ apply \ to \ system \ alters \ as \ they \ cannot \ control \ their \ source. \ rudie \ alters \ IWEC.}$$
+$${\color{#efccc3}\ I \ DO \ NOT \ SUPPORT \ QWEL! \ \ QWEL \ SUPPORTERS \ HEAVY DNI}$$
+
+</div>
+
+<div align="center"
+
+![banner](https://files.catbox.moe/25j3lt.png)
+
+</div>
+
